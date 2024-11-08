@@ -1,0 +1,1 @@
+![Screen_get_cards.jpg](Screen_get_cards.jpg)
